@@ -1,1 +1,0 @@
-# CO-Investments-Broiler-App
